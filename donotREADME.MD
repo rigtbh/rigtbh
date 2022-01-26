@@ -1,0 +1,3 @@
+- hello im rig
+- i like playing games and coding and those types of stuff
+- ok by e
